@@ -1,4 +1,4 @@
-#  
+#  secret Script for pull lucky blocks is the best pull lucky blocks Script, featuring instant win and no clip. Safe and powerful for all your needs.
 
 
 
